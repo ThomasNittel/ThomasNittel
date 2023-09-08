@@ -1,5 +1,3 @@
-https://www.linkedin.com/in/thomas-nittel-15688066/
-
 <!---
 - 👋 Hi, I’m @ThomasNittel
 - 👀 I’m interested in ...
